@@ -1,0 +1,1 @@
+The Project shows the near possible future of Electric Vehicles Startups in Indian Market. Using the tools of market segmentation, the analysis on the latest datasets presents the trend for an upcoming market.
